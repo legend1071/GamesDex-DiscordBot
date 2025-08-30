@@ -22,9 +22,9 @@ Need help or want to hang out with the community?
 
 ---
 
-## Patreon (coming soon)
+## Patreon
 
-We’re working on a Patreon page to help support the project and give back to our community with exclusive perks. Stay tuned!
+🚀 Help keep GamesDex growing by supporting us on [Patreon](https://www.patreon.com/GamesDex)! Your support unlocks special perks and keeps the project alive.
 
 ---
 
